@@ -1,2 +1,0 @@
-# breadaroundtheworld
-Kuvia leivistä
